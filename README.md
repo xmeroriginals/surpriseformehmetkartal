@@ -1,1 +1,1 @@
-# Surprise for Mehmet Kartal 23.03 ∞
+# Surprise for Mehmet Kartal 23.03
